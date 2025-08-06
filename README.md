@@ -1,4 +1,4 @@
-　　　　　　　　　　　　　　　　![](https://files.catbox.moe/l5x4sy.png)
+
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=anxious-fool&style=plastic&color=97A4B8&label=visitors)
 
@@ -10,4 +10,3 @@
                     
 　　　　　　　　　　　　　　　　　　　　social anxiety, some.ti,emes i dont Int first
 
-　　　　　　　　　　　　　　　　![](https://files.catbox.moe/xo7r7q.png)
