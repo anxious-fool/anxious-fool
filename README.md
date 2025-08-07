@@ -2,7 +2,7 @@
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=anxious-fool&style=plastic&color=97A4B8&label=✧)
 
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀![]([https://files.catbox.moe/x3rsqa.png](https://files.catbox.moe/sv46jx.png))
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/sv46jx.png)
 
                 
 　　　　　　　　　　　　　　　　　　　　straw wip ⠀[atabook](https://remainings.atabook.org/) ⠀rntry wip
