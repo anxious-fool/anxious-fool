@@ -1,8 +1,8 @@
 
 
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=anxious-fool&style=plastic&color=C0A875&label=✧)
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀![](https://komarev.com/ghpvc/?username=anxious-fool&style=plastic&color=CDF3E4&label=✧)
 
-⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/sv46jx.png)
+⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀![](https://files.catbox.moe/zml960.png)
 
                 
 　　　　　　　　　　　　　　　　　　　　<sub> straw wip ⠀[atabook](https://remainings.atabook.org/) ⠀rntry wip
