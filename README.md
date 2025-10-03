@@ -6,5 +6,5 @@
                 
 　　　　　　　　　　　　　　　　　　　　⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<sub> [atabook](https://remainings.atabook.org/) ⠀[rentry](https://rentry.co/clockmatic)
                     
-　　　　　　　　　　　　　　　　　　　　⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀iwcare & c*h enc
+　　　　　　　　　　　　　　　　　　　　⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<sub> iwcare & c*h enc
 
