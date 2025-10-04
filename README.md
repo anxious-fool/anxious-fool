@@ -4,7 +4,7 @@
 
 ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀![](https://files.catbox.moe/ayi34p.png)
                 
-　　　　　　　　　　　　　　　　　　　　⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<sub> [atabook](https://remainings.atabook.org/) ⠀[rentry](https://rentry.co/clockmatic)
+　　　　　　　　　　　　　　　　　　　　⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<sub> [atabook](https://hallucination.atabook.org/) ⠀[rentry](https://rentry.co/clockmatic)
                     
 　　　　　　　　　　　　　　　　　　　　⠀ ⠀⠀⠀⠀ ⠀⠀ ⠀⠀⠀<sub> iwcare & c*h enc
 
